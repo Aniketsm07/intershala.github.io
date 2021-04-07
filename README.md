@@ -1,1 +1,0 @@
-# intershala.github.io
